@@ -1,1 +1,1 @@
-# LSCSD-Bewerbung-Semir
+# SANG-Bewerbung-Semir
